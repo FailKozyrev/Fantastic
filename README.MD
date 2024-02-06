@@ -6,7 +6,7 @@
 
 <p align="center"><img src="https://i.ytimg.com/vi/MOJBgr-ea_w/maxresdefault.jpg" width="400"></p>
 
-<p><a href="https://youtu.be/zr-_NkqZ3X0?si=mQtQ0adRvG8Giyxx">ССЫЛКА</a></p>
+<p><a href="https://www.youtube.com/watch?v=_QMEy8SY2OY">ССЫЛКА</a></p>
 
 ---
 
