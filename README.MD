@@ -6,7 +6,7 @@
 
 <p align="center"><img src="https://img.magput.ru/pics/large/1d014a0f-5c6a-494d-99c1-24d22933528e.jpg" width="400"></p>
 
-<p><a href="https://www.kinopoisk.ru/series/5304403/?utm_referrer=www.bing.com">ССЫЛКА</a></p>
+<p><a href="https://www.youtube.com/watch?v=y0aRbsNtqAE">ССЫЛКА</a></p>
 
 ---
 
